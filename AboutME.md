@@ -20,4 +20,4 @@ Best regards,
 Ada
 
 _e-mail: adriana.wisniewska@gmail.com
-mobile: +48 728 884 506_
+_mobile: +48 728 884 506_
